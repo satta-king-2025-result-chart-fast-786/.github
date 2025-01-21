@@ -1,5 +1,10 @@
 # Satta King 2025 LIVE Result & Chart | Satta King 786 | Satta King Fast | सत्ता किंग
 
+## - Telegram  Group 👉👉 [Join Now](https://t.me/Hindiupdate201) 👈
+
+## - Whatsapp Group 👉👉 [Join Now](https://whatsapp.com/channel/0029Vay2FudAzNbmVl8KtW14) 👈
+
+
 **Delhi Satta King​ | Satta King Disawar​ | Shri Ganesh Satta King​ | Satta King Faridabad​ | Satta King Ghaziabad​ | Satta King​ Gali | Satta Matka​ | Satta King 786​ | Satta Matta Matka​ | Satta King Fast​**  Get the latest and live results of **Satta King 2025**, including charts and updates on popular regions like Delhi, Disawar, Faridabad, and more. Stay updated with Satta King 786, Fast results, and Matka games.
 
 ---
