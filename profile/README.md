@@ -1,4 +1,4 @@
-# Satta King 2025 LIVE Result & Chart | Satta King 786 | Satta King Fast | सत्ता किंग  
+# Satta King 2025 LIVE Result & Chart | Satta King 786 | Satta King Fast | सत्ता किंग  2025
 
 ## - Telegram  Group 👉👉 [Join Now](https://t.me/Hindiupdate201) 👈
 
